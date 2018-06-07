@@ -1,0 +1,1 @@
+related letter lie curvature principal distance mirror centre chap term spherical imagine surf note called fig directly sunlight activity axis normal sphere surface convex radius pad form equal vouutcvcs straight remember line reflecting concave passing understand represented sun damage pole
